@@ -4,4 +4,4 @@
 ## 📫 How to Reach Me
 
 - **Email:** mateodlr90@gmail.com
-- **LinkedIn:** [Mateo Del Rio](https://www.linkedin.com/in/mateodelrio/)
+- **LinkedIn:** [Mateo Del Rio](https://www.linkedin.com/in/mateo-del-rio/)
